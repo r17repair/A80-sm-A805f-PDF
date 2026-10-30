@@ -1,0 +1,2 @@
+# A80-sm-A805f-PDF
+A80 (sm-A805f) PDF
